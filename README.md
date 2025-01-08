@@ -3,7 +3,6 @@
 ┈  🤍 ┈ ‧˚⊹ ｡˚
 ╭ →  ❝ 𝗶𝗻𝗳𝗼 ❞ 🌰🐿️
 ┊ 🍮 🦴 your sigma!
-✰  follow meh!
       ┈  🧺 ┈ ‧˚⊹ ｡˚
 <!---
 cocozsigma/cocozsigma is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
